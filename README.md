@@ -30,6 +30,8 @@ the next bit of declarations
 ![Screenshot 2025-06-19 140636](https://github.com/user-attachments/assets/74a3f375-f365-4b2b-862b-dfc94c3af8ed)
 ![Screenshot 2025-06-19 140717](https://github.com/user-attachments/assets/cb5ffd03-148b-42da-908e-1a15307a156b)
 ![Screenshot 2025-06-19 140750](https://github.com/user-attachments/assets/89a7f350-ec84-44ac-933a-3e4350c552e3)
+![Screenshot 2025-06-19 142602](https://github.com/user-attachments/assets/b4d4939a-f26b-4bb2-858e-08c0948df6b2)
+
 
 
 
